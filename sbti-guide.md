@@ -4,6 +4,8 @@
 
 **[Take the SBTI Test Now →](https://sbtipersonality.org/sbti-test)**
 
+![try sbti test online](https://sbtipersonality.org/sbti/og-banner.png)
+
 ---
 
 ## Table of Contents
