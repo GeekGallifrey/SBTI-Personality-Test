@@ -4,6 +4,8 @@
 
 **[Take the SBTI Test Now →](https://sbtipersonality.org/sbti-test)**
 
+![try sbti test online](https://sbtipersonality.org/sbti/og-banner.png)
+
 ---
 
 ## Table of Contents
@@ -25,6 +27,9 @@
 The premise is simple and stated upfront: **"Zero science. All vibes."**
 
 But here's the thing — despite (or because of) this radical honesty, SBTI somehow manages to hit painfully, hilariously close to home.
+
+![try sbti test online](https://sbtipersonality.org/sbti/og-banner-v2.png)
+
 
 ### How It Works
 
@@ -76,7 +81,8 @@ MBTI has a scientific legitimacy problem — researchers have repeatedly questio
 
 **[See all 27 SBTI personality types →](https://sbtipersonality.org/personality)**
 
----
+![try sbti test online](https://sbtipersonality.org/sbti/og-banner-v3.png)
+
 
 ## How to Take the SBTI Test {#how-to-take-the-sbti-test}
 
@@ -144,6 +150,9 @@ Here's the full roster of SBTI types:
 | [DRUNK](https://sbtipersonality.org/personality/DRUNK) | Drinker | "Liquor burns." |
 
 ---
+
+![try sbti test online](https://sbtipersonality.org/sbti/og-banner-v4.png)
+
 
 ## How to Share Your Results {#how-to-share-your-results}
 
